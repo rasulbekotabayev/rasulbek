@@ -1,0 +1,2 @@
+# rasulbek
+klavaturada tez yozish
